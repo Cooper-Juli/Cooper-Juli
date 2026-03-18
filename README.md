@@ -12,5 +12,5 @@ Julissa Abigail Molina Cooper
 - 💬 me gusta aprender mucho
 - 📫 me gustan los deportes 
  Estudie bachillerato en Costa Rica y vengo a estudiar la universidad al Salvador
-Me gudta emprender y estoy emprendiendo  pantalones holgados perzonalisados y coonficcion de todo tipo de ropa y uniformes deportivos y laborales
+Me gusta emprender y estoy emprendiendo  pantalones holgados perzonalisados y coonficcion de todo tipo de ropa y uniformes deportivos y laborales
 
