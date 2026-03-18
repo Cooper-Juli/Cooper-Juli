@@ -9,6 +9,8 @@ Julissa Abigail Molina Cooper
 - 🌱 Tengo 20  de edad 
 - 👯 Practico Voley Ball
 - 🤔 Tengo cursos de Cisco Netwok Academy
-- 💬 me gusta aprende mucho
+- 💬 me gusta aprender mucho
 - 📫 me gustan los deportes 
+ Estudie bachillerato en Costa Rica y vengo a estudiar la universidad al Salvador
+Me gudta emprender y estoy emprendiendo  pantalones holgados perzonalisados y coonficcion de todo tipo de ropa y uniformes deportivos y laborales
 
