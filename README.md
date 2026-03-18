@@ -8,7 +8,7 @@ Julissa Abigail Molina Cooper
 - 🔭 Actualmente estoy estudiando ingieneria en Informatica 
 - 🌱 Tengo 20  de edad 
 - 👯 Practico Voley Ball
-- 🤔 Tengo cursos de Cisco Netwok Academy
+- 🤔 Tengo cursos de Cisco Network Academy
 - 💬 me gusta aprender mucho
 - 📫 me gustan los deportes 
  Estudie bachillerato en Costa Rica y vengo a estudiar la universidad al Salvador
